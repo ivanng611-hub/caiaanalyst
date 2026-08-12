@@ -1,2 +1,0 @@
-# caiaanalyst
-PRIVACY POLICY
